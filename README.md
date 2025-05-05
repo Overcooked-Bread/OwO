@@ -11,6 +11,7 @@ MINOR !!!!! _Asexual ੭ Lesbian ~_
 ༊·˚ ... For their Glory.. ~
 
 ‿‿‿‿၄၃ Do Not Interact Criteria .
+
 ٠࣪⭑ Do not interact if you hold any discrimination against others depending on their race and ethnicity .
 
 ٠࣪⭑ Do not interact if you ship Adult x Minor . (( EVEN if it is a type of coping mechanism . ))
